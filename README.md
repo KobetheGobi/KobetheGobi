@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KobetheGobi
+- 👀 I’m interested in pursuing the Computer Science Field  
+- 🌱 I’m currently learning Computer Science at Rutgers University
+- 💞️ I’m looking to collaborate on Projects
+- 📫 How to reach me, my email is faizan.adil04@gmail.com
